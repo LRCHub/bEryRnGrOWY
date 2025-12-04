@@ -1,47 +1,15 @@
-# Stack – Sweet Mercy
+# Erik Truffaz Quartet – Sweet Mercy
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
 ```
-どんな望みも叶える
-そんなの魔法じゃないわ
-思いはじまり言葉あり 行動の結果
-
-力には贄にえがいるの 魔法の糧に
-それは自らの運命 先払いの命
-
-シンデレラのスペルだって
-パーフェクトじゃないの
-真夜中の鐘が鳴り 消えてしまうわ
-ガラスのヒール残して それは贈り物
-魔法使いのSweet Mercy
-
-人を食べる魔女も
-いないことはないけれど
-それは根源の力と断絶したのね
-
-力には贄がいるの 魔法の糧に
-それは自らの命火 来世にツケといて！
-
-眠り姫のスペルだって
-パーフェクトじゃないの
-誰も彼も寝静まり 時は止まった
-王子様を待って そのキスだけなんて
-イタズラなSweet Mercy
-
-魔女が学ぶべきロジックは 当たり前だらけ
-素質さえあればれ誰でも なれるものなの
-
-ピノキオは星のスペルで
-人間になったけれど
-マリオネットのままだって美しかった
-軽やかに踊りましょう 時計のリズムで
-チクタクなSweet Mercy
-
-シンデレラのスペルだって
-パーフェクトじゃないの
-真夜中の鐘がなり消えてしまった
-ガラスのヒール残して それは贈り物
-魔法使いのSweet Mercy
-祈りのSweet Mercy
+Mi say what must must be
+I'mma try to walking my intergrity
+So lord have sweet mercy on me
+Set me free and grieving me
+No matter what must be
+Must shortly be as for me
+I try to walking my integrity
+So lord be mercy for hounting me
+Set me free
 ```
