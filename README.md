@@ -1,4 +1,4 @@
-# 暁Records – Sweet Mercy
+# Stack – Sweet Mercy
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
